@@ -1,1 +1,0 @@
-# proyecto-an-lsis-demogr-fico
